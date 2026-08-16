@@ -11,7 +11,7 @@ Me encantaría conseguir trabajo en el área de programación y/o sistemas.
 
 ### Otra Información
 - Me gustan los RPGs y soy fanatica de "Space Station 14"
-- Estoy #5 en el ranking mundial del rol Chief Medical Oficer para ese mismo juego.
+- Estoy #5 en el ranking mundial del rol Chief Medical Officer para ese mismo juego.
 - Tengo dos perros y quiero adoptar un gato.
 - Me gusta dibujar y pintar.
 - Me gusta el anime y las series.
