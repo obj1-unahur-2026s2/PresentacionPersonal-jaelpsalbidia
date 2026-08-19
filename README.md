@@ -17,3 +17,4 @@ Me encantaría conseguir trabajo en el área de programación y/o sistemas.
 - Me gusta el anime y las series.
 - Soy fanatica de las peliculas de suspenso y terror.
 - Amo leer.
+- Juego Magic The Gathering.
